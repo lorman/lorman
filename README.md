@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Eugene Lorman.
+- 👀 I’m interested in growing myself as a technical leader. 
+- 📫 How to reach me https://www.linkedin.com/in/eugene-lorman-b301298/
